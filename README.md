@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SmolChewie
+- 👀 I’m interested in VTubing and coding bots!
+- 🌱 I’m currently learning python!
+- 📫 How to reach me? Through Facebook: https://www.facebook.com/scarlettocuti
+- 😄 Pronouns: She / Her. I'm 17 y/o!
